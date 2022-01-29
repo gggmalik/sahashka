@@ -1,0 +1,2 @@
+# sahashka
+sahashka.Your source for the way of Lifestyle,Health,Nature,Sports, Books,Gaming,Business, Tech News, Latest technology news daily, new best tech gadgets reviews which include mobiles, tablets, laptops, video games. Being a tech news site we cover the latest tech news daily online from India and around the world, reviews, updates on technology today from companies like google, apple, samsung and others also new and upcoming mobiles, cameras, laptops, video games.
